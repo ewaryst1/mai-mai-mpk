@@ -1,6 +1,6 @@
-# Maias Musikproduktionsanleitung
+# Maïas Musikproduktionsanleitung
 
-Hallo Maia,
+Hallo Maïa,
 jetzt wo du ein Studio-Equipment hast, dein Music-Production-Kit MPK :-), musst du es natürlich erst einmal einrichten!
 
 Hier hast du ein paar Links um zu lernen, wie du dein Kit zusammenstöpselst, und damit deine ersten Aufnahmen erzeugst.
